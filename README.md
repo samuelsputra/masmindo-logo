@@ -1,0 +1,1 @@
+# masmindo-logo
